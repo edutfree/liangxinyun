@@ -12,7 +12,7 @@
 
 优惠力度：全场7折（2元套餐除外）
 
-优惠码：[LXY](https://xn--9kqz23b19z.com/#/register?code=Msw795rr)
+520促销优惠码：[爱你如初LXY](https://xn--9kqz23b19z.com/#/register?code=Msw795rr)
 
 ## 良心云套餐价格
 
