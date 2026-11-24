@@ -2,6 +2,8 @@
 
 永久官网：[良心云.com](https://xn--9kqz23b19z.com/#/register?code=Msw795rr)
 
+备用：[直连](https://xn--9kqz23b19z.cc/#/register?code=Msw795rr)
+
 ## 良心云(liangxinyun)简介
 
 良心云是一家以“高性价比”著称的网络加速服务商，主打便宜实惠与稳定可靠的服务体验。节点支持最新的Vless与Hysteria2协议，兼顾安全与性能表现，尤其在跨境访问、流媒体解锁等场景中表现出色。
